@@ -6,7 +6,7 @@
 
 Электронная почта - obukhovichforbb@gmail.com
 
-Тг - @obbukhovich
+Телеграм - @obbukhovich
 
 Желаемая должность - финансовый аналитик / аналитик
 
